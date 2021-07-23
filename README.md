@@ -1,0 +1,1 @@
+# Lenovo-Ideapad-300-15isk
